@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dami2646549
 - 👀 I’m interested in travels, music, books, business
 - 🌱 I’m currently learning international business and management MSc. in the university
-- 💞️ I’m looking to collaborate on academic researches, projects clustering my studeis
+- 💞️ I’m looking to collaborate on academic researches, projects, debates on matters and issues boadering my course of study
 - 📫 How to reach me p2646549@my365.dmu.ac.uk
 
 <!---
